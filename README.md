@@ -1,1 +1,0 @@
-"Ajout pour co-auteur" 
